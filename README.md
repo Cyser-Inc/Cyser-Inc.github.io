@@ -1,2 +1,0 @@
-# 
-Spesial Untuk Kamu ♡
